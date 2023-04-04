@@ -1,1 +1,1 @@
-Sofie is coding
+Starting to code today, so cool
